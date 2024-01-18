@@ -1,4 +1,4 @@
-# Heey there! I'm Vitor 👋, Welcome to my GitHub profile 😄
+# Heey there!! I'm Vitor 👋, Welcome to my GitHub profile 😄
 
 ## ☝️About me :
 
